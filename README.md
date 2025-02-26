@@ -1,3 +1,4 @@
+![1000005842](https://github.com/user-attachments/assets/31b573b5-e85d-4b0f-8ad8-a35e791fdf64)
 - 👋 Hi, I’m @achristac
 - 👀 I’m interested in ... music/writing 
 - 🌱 I’m currently learning ... pregnancy and going back to school for law 😏🤙
